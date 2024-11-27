@@ -1,0 +1,1 @@
+# Konnected_GDO_blaQ
